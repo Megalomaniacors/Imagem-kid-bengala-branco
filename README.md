@@ -1,0 +1,1 @@
+# Imagem-kid-bengala-branco
